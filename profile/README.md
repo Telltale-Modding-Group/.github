@@ -1,1 +1,2 @@
-https://github.com/Telltale-Modding-Group
+
+**Discord Server - https://discord.gg/SPdn5yZr6M**
